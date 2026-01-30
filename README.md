@@ -1,4 +1,4 @@
-# 👋 Venkatesh Chavan – Data Analyst
+# 👋 Venkatesh Chavan
 
 📧 Email: neil009chavan@gmail.com  
 📞 Phone: +91-9518778933  
